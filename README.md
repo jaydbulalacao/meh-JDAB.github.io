@@ -5,4 +5,4 @@ My Favorite anime
 - Black Clover
 - HunterX Hunter
 
-![fz](https://pbs.twimg.com/profile_images/1275649213133660162/XBjxpTGI_400x400.jpg)
+![fz](https://animecorner.me/wp-content/uploads/2022/05/Spy-x-family-06-31.png)
