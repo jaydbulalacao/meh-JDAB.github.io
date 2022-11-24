@@ -47,11 +47,11 @@ RealityQuest
 >Lookism
 	![a](https://static1.dualshockersimages.com/wordpress/wp-content/uploads/2022/09/Lookism-anime-adaptation.png)
  Daniel is an unattractive loner who wakes up in a different body. Now tall, handsome, and cooler than ever in his new form, Daniel aims to achieve everything he couldn't before.
- READ HERE-		[title](https://www.webtoons.com/en/drama/lookism/list?title_no=1049&page=1)
+ READ HERE-		[Lookism](https://www.webtoons.com/en/drama/lookism/list?title_no=1049&page=1)
 
 >QuestSupremacy
 
 ![alt text](https://external-preview.redd.it/mjnh1KYyZP9K1Q-DQHgU5jUj8fapZ27_V4SuweVv0mc.jpg?width=640&crop=smart&auto=webp&s=f8e4bf878c13e18b7627c077aaca7bb0eebac46d)
  
  Gaming geek Suhyeon Kim hates school, and the dislike is mutual. Every day he faces relentless bullying from his classmates, leading him to wish his life was more like the RPG quest games he plays. Suhyeon’s wish is granted when a quest prompt pops up in real life with an easy quest and an enticing reward. With nothing to lose he takes the chance, and one quest soon leads to another. As the stakes get higher and the rewards get bigger, Suhyeon soon finds he’s gone from being an ostracized nobody to the top of the school. Just how far will Suhyeon take his quests
- READ HERE-[title](https://www.example.comhttps://www.webtoons.com/en/fantasy/questism/list?title_no=3767&page=1
+ READ HERE- [Questsim](https://www.example.comhttps://www.webtoons.com/en/fantasy/questism/list?title_no=3767&page=1)
